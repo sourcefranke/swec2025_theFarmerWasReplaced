@@ -1,0 +1,1 @@
+# SWEC 2025: The Farmer was replaced
